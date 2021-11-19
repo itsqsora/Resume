@@ -27,5 +27,5 @@ Definately yes! I am able to speak English, Check my score below. <br>
 [EF SET TEST SCORE](https://www.efset.org/cert/1esFvo) 23 Oct 2021. <br>
 I've archived a overall score at 66/100 C1 Advanced.
 - 72/100 at Reading Section (C2 Proficient)
-- 60/100 at Listening Section (B2 Upper Intermediate)
+- 60/100 at Listening Section (B2 Upper Intermediate) <br>
 ** The achieved English level is 66/100 on the EF SET score scale and C1 Advanced according to the Common European Framework of Reference (CEFR). The EF SET score is calculated as an average of the reading and listening scores.
