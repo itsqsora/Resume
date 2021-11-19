@@ -19,4 +19,6 @@ Art painting movement styles I love is Ex/Post-Impressionism, Renaissance, Neocl
 [About Music] 🎶 <br>
 I do love to listen every kinds of music, my favorite kinds of music are [Oldies](https://www.youtube.com/watch?v=-BCX7hN3Tg0&list=RDEMBEtDorterq8DOxTpreL_ag&start_radio=1&ab_channel=JimReeves-Topic), [Psychedelic Rock and Roll](https://www.youtube.com/watch?v=HW-lXjOyUWo&list=OLAK5uy_l1x-JAx0w53suECoCI0YJtW6VB8DBQWRQ&ab_channel=PinkFloyd-Topic), and [Classical music](https://www.youtube.com/watch?v=4Tr0otuiQuU&ab_channel=andrearomano) (in this case, it is my favorite, especially the first movement, classical song- moonlight sonata composed by Beethoven)
 
+
+<br><br> I have shared you my personal infomation and interests. So,
 # Let's get straight to the point!
