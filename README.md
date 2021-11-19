@@ -37,4 +37,7 @@ Since the work time here is 16.00 PM - 24.00 PM, I can work here with no any pro
 <br><br>
 3. I have NO any experiences about this field of work (servicing) BUT I do want to work here because I want to improve my English skills and my servicing skill
 <br><br>
-4. I like the art style of Casa Del Vino est.1956
+4. I have NO any idea of Vino (Wine) BUT I do want to learn and know more about it!
+<br><br>
+5. I like the art style of Casa Del Vino est.1956, it is really classic.
+<br><br>
