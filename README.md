@@ -2,11 +2,12 @@
 ## Hello there, Casa Del Vino est.1956.
 **Way to contact me**
 - [Facebook](https://www.facebook.com/itsqsora/) <br>
-- [Email](itsqsora@gmail.com) <br>
+- [Email] (itsqsora@gmail.com) <br>
+- Tel. 0980106418 <br>
 
 [About me.] :boy: <br>
-My name is Soranan Rungtanee, you can call me Q. I am 17-year-old boy who passinated in Coding, Reading, Art, and Music. <br>
-I am now study in the 12th grade (M6), Math-Sci programme, at Sawat Rattanaphimuk school. [Location here](https://www.google.com/maps/place/Sawat+Rattanapimuk+School/@7.5594792,99.6935307,17z/data=!3m1!4b1!4m5!3m4!1s0x304d8f12273f03f3:0x78ab1bef5fe68d87!8m2!3d7.5594792!4d99.6957194)
+My name is Soranan Rungtanee, you can call me Q. I am 17-year-old boy who passinated in Coding, Reading, Art, and Music. <br> I would love to improve my soft skills, communicating and servicing better.<br>
+I am now study in the 12th grade (M6), Math-Sci programme, at Sawat Rattanaphimuk school, Trang. [Location here](https://www.google.com/maps/place/Sawat+Rattanapimuk+School/@7.5594792,99.6935307,17z/data=!3m1!4b1!4m5!3m4!1s0x304d8f12273f03f3:0x78ab1bef5fe68d87!8m2!3d7.5594792!4d99.6957194)
 
 [About my Coding] 💻 <br>
 I do create a branch of stuffs like buttons, or something like this. <br>
@@ -45,7 +46,7 @@ Since the work time here is 16.00 PM - 24.00 PM, I can work here with no any pro
 5. I like the art style, Architecture, of Casa Del Vino est.1956, it is really classic. And I also like the enviroment of workplace.
 <br><br>
 <br><br>
-Since I do really want to have money to keep me survive on this planet, I saw the oppoturnity and I am now grapping it, I do want to work for you.
+Since I do really need to have money to keep me survive on this planet, I saw the oppoturnity and I am now grapping it, I do want to work for you.
 <br>
 <br>
 
