@@ -49,7 +49,7 @@ Since the work time here is 16.00 PM - 24.00 PM, I can work here with no any pro
 5. I like the art style, Architecture, of Casa Del Vino est.1956, it is really classic. And I also like the enviroment of workplace.
 <br><br>
 <br><br>
-Since I do really need to have money to keep me survive on this planet, I saw the oppoturnity and I am now grapping it, I do want to work for you.
+Since I do really need money to keep me survive on this planet, I saw the oppoturnity and I am now grapping it, I do want to work for you.
 <br>
 <br>
 
