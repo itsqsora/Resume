@@ -39,5 +39,10 @@ Since the work time here is 16.00 PM - 24.00 PM, I can work here with no any pro
 <br><br>
 4. I have NO any idea of Vino (Wine) BUT I do want to learn and know more about it!
 <br><br>
-5. I like the art style of Casa Del Vino est.1956, it is really classic.
+5. I like the art style, Architecture, of Casa Del Vino est.1956, it is really classic. And I also like the enviroment of workplace.
 <br><br>
+<br><br>
+Since I do really want to have money to keep me survive on this planet, I saw the oppoturnity and I am now grapping it, I want to work for your company.
+
+Best regrads,<br>
+Soranan.
