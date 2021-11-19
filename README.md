@@ -45,8 +45,9 @@ Since the work time here is 16.00 PM - 24.00 PM, I can work here with no any pro
 Since I do really want to have money to keep me survive on this planet, I saw the oppoturnity and I am now grapping it, I do want to work for you.
 <br>
 <br>
-## Way to contact me
+** Way to contact me **
 - [Facebook](https://www.facebook.com/itsqsora/)
-- [Email]()
+- [Email] itsqsora@gmail.com
+
 <b>Best regards,<br>
 Soranan.
