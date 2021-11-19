@@ -2,7 +2,7 @@
 ## Hello there, Casa Del Vino est.1956.
 
 [About me.] <br>
-My name is Soranan Rungtanee, สรนันท์ รุ่งธานี ชื่อเล่นคิว, and  I am 17-year-old boy who passinated in Coding, Reading, Art, and Music. <br>
+My name is Soranan Rungtanee, you can call me Q. I am 17-year-old boy who passinated in Coding, Reading, Art, and Music. <br>
 I am now study in the 12th grade (M6), Math-Sci programme, at Sawat Rattanaphimuk school. [Location here](https://www.google.com/maps/place/Sawat+Rattanapimuk+School/@7.5594792,99.6935307,17z/data=!3m1!4b1!4m5!3m4!1s0x304d8f12273f03f3:0x78ab1bef5fe68d87!8m2!3d7.5594792!4d99.6957194)
 
 [About my Coding] 💻 <br>
