@@ -35,4 +35,6 @@ Definately yes! <br>
 2. Work times <br>
 Since the work time here is 16.00 PM - 24.00 PM, I can work here with no any problems about my school.
 <br><br>
-3. I have NO any experiences about this field of work (servicing) BUT I do want to work here because I want to improve my English skill and my servicing skill
+3. I have NO any experiences about this field of work (servicing) BUT I do want to work here because I want to improve my English skills and my servicing skill
+<br><br>
+4. I like the art style of Casa Del Vino est.1956
