@@ -5,6 +5,9 @@
 - [Email] (itsqsora@gmail.com) <br>
 - Tel. 0980106418 <br>
 
+
+![Me](https://scontent.fhdy2-1.fna.fbcdn.net/v/t39.30808-6/258555634_940600316549714_6641314165774002953_n.jpg?_nc_cat=103&ccb=1-5&_nc_sid=730e14&_nc_ohc=LdLCdFs7tHgAX9v_4vs&_nc_ht=scontent.fhdy2-1.fna&oh=e36769b86234745879fbf198687ab41f&oe=619BABFC)
+
 [About me.] :boy: <br>
 My name is Soranan Rungtanee, you can call me Q. I am 17-year-old boy who passinated in Coding, Reading, Art, and Music. <br> I would love to improve my soft skills, communicating and servicing better.<br>
 I am now study in the 12th grade (M6), Math-Sci programme, at Sawat Rattanaphimuk school, Trang. [Location here](https://www.google.com/maps/place/Sawat+Rattanapimuk+School/@7.5594792,99.6935307,17z/data=!3m1!4b1!4m5!3m4!1s0x304d8f12273f03f3:0x78ab1bef5fe68d87!8m2!3d7.5594792!4d99.6957194)
