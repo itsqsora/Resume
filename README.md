@@ -1,7 +1,10 @@
 # :boy: My Profile 
 ## Hello there, Casa Del Vino est.1956.
+**Way to contact me**
+- [Facebook](https://www.facebook.com/itsqsora/) <br>
+- [Email](itsqsora@gmail.com) <br>
 
-[About me.] <br>
+[About me.] :boy: <br>
 My name is Soranan Rungtanee, you can call me Q. I am 17-year-old boy who passinated in Coding, Reading, Art, and Music. <br>
 I am now study in the 12th grade (M6), Math-Sci programme, at Sawat Rattanaphimuk school. [Location here](https://www.google.com/maps/place/Sawat+Rattanapimuk+School/@7.5594792,99.6935307,17z/data=!3m1!4b1!4m5!3m4!1s0x304d8f12273f03f3:0x78ab1bef5fe68d87!8m2!3d7.5594792!4d99.6957194)
 
@@ -45,9 +48,6 @@ Since the work time here is 16.00 PM - 24.00 PM, I can work here with no any pro
 Since I do really want to have money to keep me survive on this planet, I saw the oppoturnity and I am now grapping it, I do want to work for you.
 <br>
 <br>
-** Way to contact me **
-- [Facebook](https://www.facebook.com/itsqsora/)
-- [Email] itsqsora@gmail.com
 
 <b>Best regards,<br>
 Soranan.
