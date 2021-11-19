@@ -25,12 +25,14 @@ I do love to listen every kinds of music, my favorite kinds of music are [Oldies
 ## Any reasons to work here, at Casa Del Vino est.1956?
 Definately yes! <br> 
 1) I am able to speak English, Check my score below. <br>
-  [EF SET TEST SCORE](https://www.efset.org/cert/1esFvo) 23 Oct 2021. <br>
-  I've archived a overall score at 66/100 C1 Advanced.
-  - 72/100 at Reading Section (C2 Proficient)
-  - 60/100 at Listening Section (B2 Upper Intermediate) 
+ [EF SET TEST SCORE](https://www.efset.org/cert/1esFvo) 23 Oct 2021. <br>
+ I've archived a overall score at 66/100 C1 Advanced.
+ - 72/100 at Reading Section (C2 Proficient)
+ - 60/100 at Listening Section (B2 Upper Intermediate) 
   <br>
 ** The achieved English level is 66/100 on the EF SET score scale and C1 Advanced according to the Common European Framework of Reference (CEFR). The EF SET score is calculated as an average of the reading and listening scores.
 <br><br>
 2. Work times <br>
-
+Since the work time here is 16.00 PM - 24.00 PM, I can work here with no any problems about my school.
+<br><br>
+3. I have NO any experiences about this field of work (servicing) BUT I do want to work here because I want to improve my English skill and my servicing skill
