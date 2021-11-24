@@ -45,7 +45,7 @@ Since the work time here is 6.00 PM - 8.00 PM, I can work here with no any probl
 <br><br>
 3. I have NO any experiences about this field of work  BUT I do want to work here.
 <br><br>
-5. I am fully vaccinated, 2 jabs of Pfizer.
+4. I am fully vaccinated, 2 jabs of Pfizer.
 <br><br>
 Since I do really need money to keep me survive on this planet, I saw the oppoturnity and I am now grapping it, I do want to work for you.
 <br>
