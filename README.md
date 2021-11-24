@@ -1,10 +1,11 @@
 # :boy: My Profile 
-## Hello there, Casa Del Vino est.1956.
+## Hello there.
 **Way to contact me**
 - [Facebook](https://www.facebook.com/itsqsora/) <br>
-- [Email] (itsqsora@gmail.com) <br>
+- itsqsora@gmail.com <br>
 - Tel. 0980106418 <br>
 
+## Available for part time
 
 ![Me](https://scontent.fhdy2-1.fna.fbcdn.net/v/t39.30808-6/258555634_940600316549714_6641314165774002953_n.jpg?_nc_cat=103&ccb=1-5&_nc_sid=730e14&_nc_ohc=LdLCdFs7tHgAX9v_4vs&_nc_ht=scontent.fhdy2-1.fna&oh=e36769b86234745879fbf198687ab41f&oe=619BABFC)
 
@@ -29,7 +30,7 @@ I do love to listen every kinds of music, my favorite kinds of music are [Oldies
 
 <br><br> I have shared you my personal infomation and interests. So,
 # Let's get straight to the point!
-## Any reasons to work here, at Casa Del Vino est.1956?
+## Any reasons to work here.
 Definately yes! <br> 
 1) I am able to speak English, Check my score below. <br>
  [EF SET TEST SCORE](https://www.efset.org/cert/1esFvo) 23 Oct 2021. <br>
@@ -40,15 +41,11 @@ Definately yes! <br>
 ** The achieved English level is 66/100 on the EF SET score scale and C1 Advanced according to the Common European Framework of Reference (CEFR). The EF SET score is calculated as an average of the reading and listening scores.
 <br><br>
 2. Work times <br>
-Since the work time here is 16.00 PM - 24.00 PM, I can work here with no any problems about my school.
+Since the work time here is 6.00 PM - 8.00 PM, I can work here with no any problems about my school.
 <br><br>
-3. I have NO any experiences about this field of work (servicing) BUT I do want to work here because I want to improve my English skills and my servicing skill
+3. I have NO any experiences about this field of work  BUT I do want to work here.
 <br><br>
-4. I have NO any idea of Vino (Wine) BUT I do want to learn and know more about it!
-<br><br>
-5. I like the art style, Architecture, of Casa Del Vino est.1956, it is really classic. And I also like the enviroment of workplace.
-<br><br>
-6. I am fully vaccinated, 2 jabs of Pfizer.
+5. I am fully vaccinated, 2 jabs of Pfizer.
 <br><br>
 Since I do really need money to keep me survive on this planet, I saw the oppoturnity and I am now grapping it, I do want to work for you.
 <br>
