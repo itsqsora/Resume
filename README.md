@@ -5,7 +5,7 @@
 - itsqsora@gmail.com <br>
 - Tel. 0980106418 <br>
 
-## Available for part time
+## Available for Part time and Full time
 
 ![Me](https://scontent.fhdy2-1.fna.fbcdn.net/v/t39.30808-6/258555634_940600316549714_6641314165774002953_n.jpg?_nc_cat=103&ccb=1-5&_nc_sid=730e14&_nc_ohc=LdLCdFs7tHgAX9v_4vs&_nc_ht=scontent.fhdy2-1.fna&oh=e36769b86234745879fbf198687ab41f&oe=619BABFC)
 
